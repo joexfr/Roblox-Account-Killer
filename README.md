@@ -57,18 +57,15 @@
 
 - **If you like the tool please follow me**
 - WebSite: [Click Here](https://guns.lol/0xmrjoex)
-- Instagram: [Click Here](https://instagram.com/0xmrjoex) 
-- Youtube: [Click Here](https://youtube.com/@0xmrjoex)
+- Youtube: [Click Here](https://www.youtube.com/@0xmrjoex1)
 
 --
 
-## My Discord Servers 
+## My Discord Server
 
 **If you need help or want to report an error join the discord servers bellow** 
 
-[SecroFence](https://discord.gg/yuHBQz5Qec)
-
-[Raymond Evil](https://discord.gg/sWwCUdsP6A)
+[LulzSec](https://discord.gg/mj7fF9S3ZF)
 
 --
 
